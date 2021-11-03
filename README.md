@@ -1,0 +1,3 @@
+- olá meu nome é Lucassol
+- estarei usando essa conta para estudar codigos, fazer projetos e etc
+- se precisar me contatar este é meu gmail Porquenpode@gmail.com
